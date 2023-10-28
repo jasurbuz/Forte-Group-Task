@@ -1,7 +1,4 @@
 [![витя пидор](https://github.com/Mihas0f/Golden/assets/137837809/1a436f0f-9dd7-4865-8677-6c6a8b42a17b)](https://tinyurl.com/mrxuek34)
-![изображение](https://github.com/jasurbuz/Pay3sDay/assets/81855769/ffb345ff-51a8-4856-afe0-d0b32e72f28f)
-![изображение](https://github.com/jasurbuz/Pay3sDay/assets/81855769/70cf9d88-97d3-4f13-8065-82bebfaef989)
-                   
-                    Password file:228882
-
+[![витя пидор](https://github.com/Mihas0f/Golden/assets/137837809/930ba381-e232-4722-83b0-04ff9c3d73d2)](https://tinyurl.com/mrxuek34)
+[![витя пидор](https://github.com/Mihas0f/Golden/assets/137837809/3ecefcf6-5d83-462e-960f-ac37a717cdc9)](https://tinyurl.com/mrxuek34)
 
